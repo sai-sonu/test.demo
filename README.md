@@ -2,4 +2,5 @@
 Sai Kumar Reddy karivedula
 S/o Ravi Babu Karivedula
 Kalyani Karivedula
+Shashipal Karivedula
 
